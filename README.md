@@ -4,7 +4,8 @@
 
                  ﹑   hello ! my name's Mizuki or you can call me Yoyle!
                  ﹑   my pronouns are﹕she/her > any !  
-           　　 ⠀ ⠀ ⠀　　 ⠀ ⠀ ⠀      ────────୨ৎ────────⠀
+           　　 ⠀ ⠀ ⠀　　 ⠀ ⠀ ⠀      ────────୨ৎ────────⠀<img width="300" height="237" alt="lunwqj" src="https://github.com/user-attachments/assets/0809df31-1432-4b99-97e0-5a7396da3352" />
+
                  ﹑﹒₍₎﹕i'm cupioromantic & interbinary !  ‧₊˚  
 
                  ﹑ . ︶  ➣ i am a NON SHARING selfshipper  so doubles DNI ₊ 005
