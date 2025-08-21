@@ -12,7 +12,7 @@
 
                  ﹑ . ︶  ➣ i am a NON SHARING selfshipper  so doubles DNI ₊ 005
 　　　　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀<img width="643" height="45" alt="tumblr_7c36baf2ac719eca2ab06d61c6a9ff66_ee4423ee_1280" src="https://github.com/user-attachments/assets/880cd6b2-a52a-4696-8216-4dac4db1b9a5" />
-   ⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 　　　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⏆﹒✿﹒MY SELFSHIPS ARE﹒﹒┄
+   ⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 　　　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⏆﹒✿﹒MY SELFSHIPS ARE﹒﹒┄
    
    ⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　 ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀ ⠀Paintbrush ! Inanimate Insanity
    
