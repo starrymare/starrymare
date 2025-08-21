@@ -1,6 +1,6 @@
 
 <img width="1280" height="139" alt="eiuqk1" src="https://github.com/user-attachments/assets/3469eef8-69b4-4929-b12d-37681863a499" />
-⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀_ _ ◜      ⋅˚₊‧ ୨୧ ‧₊˚ ⋅    ﹕  `   𝓂𝒾𝓏𝓊𝓂𝒶𝓎𝑜𝓈 𝒾𝓃𝓉𝓇𝑜   `
+⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀_ _ ◜      ⋅˚₊‧ ୨୧ ‧₊˚ ⋅    ﹕  `   𝓂𝒾𝓏𝓊𝓂𝒶𝓎𝑜𝓈 𝒾𝓃𝓉𝓇𝑜   `
 
                  ﹑   hello ! my name's Mizuki or you can call me Yoyle!
                  ﹑   my pronouns are﹕she/her > any !  
@@ -8,7 +8,7 @@
                  ﹑﹒₍₎﹕i'm cupioromantic & interbinary !  ‧₊˚  
 
                  ﹑ . ︶  ➣ i am a NON SHARING selfshipper  so doubles DNI ₊ 005
-⠀ ⠀ ⠀ ⠀ <img width="240" height="25" alt="tumblr_e88bc7e54fe63a2ba1d7f7f63bde86da_e3e058a6_250" src="https://github.com/user-attachments/assets/adefe248-d64d-4bc3-baf9-b3fef514c7d4" /><img width="240" height="25" alt="tumblr_e88bc7e54fe63a2ba1d7f7f63bde86da_e3e058a6_250" src="https://github.com/user-attachments/assets/adefe248-d64d-4bc3-baf9-b3fef514c7d4" /><img width="240" height="25" alt="tumblr_e88bc7e54fe63a2ba1d7f7f63bde86da_e3e058a6_250" src="https://github.com/user-attachments/assets/adefe248-d64d-4bc3-baf9-b3fef514c7d4" /><img width="240" height="25" alt="tumblr_e88bc7e54fe63a2ba1d7f7f63bde86da_e3e058a6_250" src="https://github.com/user-attachments/assets/adefe248-d64d-4bc3-baf9-b3fef514c7d4" />
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <img width="240" height="25" alt="tumblr_e88bc7e54fe63a2ba1d7f7f63bde86da_e3e058a6_250" src="https://github.com/user-attachments/assets/adefe248-d64d-4bc3-baf9-b3fef514c7d4" /><img width="240" height="25" alt="tumblr_e88bc7e54fe63a2ba1d7f7f63bde86da_e3e058a6_250" src="https://github.com/user-attachments/assets/adefe248-d64d-4bc3-baf9-b3fef514c7d4" /><img width="240" height="25" alt="tumblr_e88bc7e54fe63a2ba1d7f7f63bde86da_e3e058a6_250" src="https://github.com/user-attachments/assets/adefe248-d64d-4bc3-baf9-b3fef514c7d4" /><img width="240" height="25" alt="tumblr_e88bc7e54fe63a2ba1d7f7f63bde86da_e3e058a6_250" src="https://github.com/user-attachments/assets/adefe248-d64d-4bc3-baf9-b3fef514c7d4" />
 
 |      ╭【   ♡・MY DNI 】  ・・
 
