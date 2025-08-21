@@ -1,5 +1,6 @@
 
-<img width="1280" height="427" alt="tumblr_44f0dd13780c1d27f4736e7e72e349af_1463dc3a_1280" src="https://github.com/user-attachments/assets/dbe642ab-d2ed-4ff4-9fe3-ae3feea1bbe9" />
+<img width="1280" height="129" alt="tumblr_31fd5135192ba83c7d3a8536dfd732c1_35f3fe8f_1280" src="https://github.com/user-attachments/assets/1e7e628d-1a2d-445f-9643-71d8957e3769" />
+
 
 ⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀_ _ ◜      ⋅˚₊‧ ୨୧ ‧₊˚ ⋅    ﹕  `   𝓂𝒾𝓏𝓊𝓂𝒶𝓎𝑜𝓈 𝒾𝓃𝓉𝓇𝑜   `
 
@@ -22,6 +23,7 @@
 
 
 | ・┈ ✦﹕ PLEASE interact with me : ppl who wants to be my friend!! i may not be talkative but i love new friends, just make sure you're not on my dni
-<img width="1280" height="427" alt="tumblr_0cda05e0a131c7e1277b31fd6c46d8e8_f6bf3c2a_1280" src="https://github.com/user-attachments/assets/582f2d3c-a728-42b2-a6d7-29d017e8cb82" />
+<img width="1280" height="129" alt="tumblr_cf058c8d0ebb0d8a6600f7c5e18de595_8200ae10_1280" src="https://github.com/user-attachments/assets/cc218355-5d8e-43b3-aedb-4efb84b5d851" />
+
 
 
