@@ -1,5 +1,6 @@
 
-<img width="1280" height="139" alt="eiuqk1" src="https://github.com/user-attachments/assets/3469eef8-69b4-4929-b12d-37681863a499" />
+<img width="1280" height="427" alt="tumblr_44f0dd13780c1d27f4736e7e72e349af_1463dc3a_1280" src="https://github.com/user-attachments/assets/dbe642ab-d2ed-4ff4-9fe3-ae3feea1bbe9" />
+
 ⠀ ⠀ ⠀ ⠀ ⠀ 　 　　　　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀_ _ ◜      ⋅˚₊‧ ୨୧ ‧₊˚ ⋅    ﹕  `   𝓂𝒾𝓏𝓊𝓂𝒶𝓎𝑜𝓈 𝒾𝓃𝓉𝓇𝑜   `
 
                  ﹑   hello ! my name's Mizuki or you can call me Yoyle!
@@ -9,7 +10,7 @@
                  ﹑﹒₍₎﹕i'm cupioromantic & interbinary !  ‧₊˚  
 
                  ﹑ . ︶  ➣ i am a NON SHARING selfshipper  so doubles DNI ₊ 005
-<img width="1280" height="139" alt="eiuqk1" src="https://github.com/user-attachments/assets/3469eef8-69b4-4929-b12d-37681863a499" />
+![tumblr_737d783a8e44ec3e8041644dd16b6517_9e21eca5_540](https://github.com/user-attachments/assets/1444c025-05a7-407e-9eed-a81da48ae11d)
 
  |      ╭【   ♡・MY DNI 】  ・・
 
@@ -21,6 +22,6 @@
 
 
 | ・┈ ✦﹕ PLEASE interact with me : ppl who wants to be my friend!! i may not be talkative but i love new friends, just make sure you're not on my dni
-<img width="500" height="62" alt="297drl" src="https://github.com/user-attachments/assets/2c8014d8-28fb-4866-b688-ff23c775a4ea" />
+<img width="1280" height="427" alt="tumblr_0cda05e0a131c7e1277b31fd6c46d8e8_f6bf3c2a_1280" src="https://github.com/user-attachments/assets/582f2d3c-a728-42b2-a6d7-29d017e8cb82" />
 
 
