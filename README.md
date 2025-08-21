@@ -11,7 +11,7 @@
                  ﹑﹒₍₎﹕i'm cupioromantic & interbinary !  ‧₊˚  
 
                  ﹑ . ︶  ➣ i am a NON SHARING selfshipper  so doubles DNI ₊ 005
-![tumblr_737d783a8e44ec3e8041644dd16b6517_9e21eca5_540](https://github.com/user-attachments/assets/c9071c0a-a39e-49bb-b5ba-fe4980029c76)![tumblr_737d783a8e44ec3e8041644dd16b6517_9e21eca5_540](https://github.com/user-attachments/assets/c9071c0a-a39e-49bb-b5ba-fe4980029c76)![tumblr_737d783a8e44ec3e8041644dd16b6517_9e21eca5_540](https://github.com/user-attachments/assets/c9071c0a-a39e-49bb-b5ba-fe4980029c76)
+　 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![tumblr_737d783a8e44ec3e8041644dd16b6517_9e21eca5_540](https://github.com/user-attachments/assets/c9071c0a-a39e-49bb-b5ba-fe4980029c76)![tumblr_737d783a8e44ec3e8041644dd16b6517_9e21eca5_540](https://github.com/user-attachments/assets/c9071c0a-a39e-49bb-b5ba-fe4980029c76)
 
 
  |      ╭【   ♡・MY DNI 】  ・・
