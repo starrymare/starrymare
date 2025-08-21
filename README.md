@@ -8,6 +8,7 @@
                  ﹑﹒₍₎﹕i'm cupioromantic & interbinary !  ‧₊˚  
 
                  ﹑ . ︶  ➣ i am a NON SHARING selfshipper  so doubles DNI ₊ 005
+<img width="240" height="25" alt="tumblr_e88bc7e54fe63a2ba1d7f7f63bde86da_e3e058a6_250" src="https://github.com/user-attachments/assets/adefe248-d64d-4bc3-baf9-b3fef514c7d4" />
 
 |      ╭【   ♡・MY DNI 】  ・・
 
