@@ -9,9 +9,9 @@
                  ﹑﹒₍₎﹕i'm cupioromantic & interbinary !  ‧₊˚  
 
                  ﹑ . ︶  ➣ i am a NON SHARING selfshipper  so doubles DNI ₊ 005
-<img width="1280" height="163" alt="4ap2e3" src="https://github.com/user-attachments/assets/c797480a-05b2-4285-85f8-2be3c38ac53b" />
+<img width="1280" height="139" alt="eiuqk1" src="https://github.com/user-attachments/assets/3469eef8-69b4-4929-b12d-37681863a499" />
 
-<img width="500" height="500" alt="IMG-3958" src="https://github.com/user-attachments/assets/2f0b9f6a-e589-40ec-93a3-58fe94ec1a29" /> |      ╭【   ♡・MY DNI 】  ・・
+ |      ╭【   ♡・MY DNI 】  ・・
 
 | if you aren't double , you should check this out !   ୧
 
@@ -21,8 +21,6 @@
 
 
 | ・┈ ✦﹕ PLEASE interact with me : ppl who wants to be my friend!! i may not be talkative but i love new friends, just make sure you're not on my dni
-⠀ 　 　　　　 ⠀ <img width="843" height="139" alt="Без названия1506_20250821174648" src="https://github.com/user-attachments/assets/bbaf2037-4f4e-4107-b028-6d96d84d3023" />
+<img width="500" height="62" alt="297drl" src="https://github.com/user-attachments/assets/2c8014d8-28fb-4866-b688-ff23c775a4ea" />
 
-
-<img width="1280" height="139" alt="eiuqk1" src="https://github.com/user-attachments/assets/3469eef8-69b4-4929-b12d-37681863a499" />
 
