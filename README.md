@@ -11,13 +11,13 @@
                  ﹑ . ︶  ➣ i am a NON SHARING selfshipper  so doubles DNI ₊ 005
 <img width="1280" height="163" alt="4ap2e3" src="https://github.com/user-attachments/assets/c797480a-05b2-4285-85f8-2be3c38ac53b" />
 
-|      ╭【   ♡・MY DNI 】  ・・
+<img width="500" height="500" alt="IMG-3958" src="https://github.com/user-attachments/assets/2f0b9f6a-e589-40ec-93a3-58fe94ec1a29" /> |      ╭【   ♡・MY DNI 】  ・・
 
 | if you aren't double , you should check this out !   ୧
 
 | ・┈ ✦ ﹕STRICTLY DNI : map supporters , p3dos , zooph1le , animal abusers or any other shi like this bro js go away
 
-| ・┈ ✦﹕ dni pls : any popular dw ship fans (like fruitcake) > i just don't want to interact with them .  ppl who think telling to kys is funny , haters of fandoms im in   ⠀ ⠀ ⠀ ⠀ <img width="300" height="237" alt="lunwqj" src="https://github.com/user-attachments/assets/7d930815-9859-45dc-848b-8fd751476c28" />
+| ・┈ ✦﹕ dni pls : any popular dw ship fans (like fruitcake) > i just don't want to interact with them .  ppl who think telling to kys is funny , haters of fandoms im in
 
 
 | ・┈ ✦﹕ PLEASE interact with me : ppl who wants to be my friend!! i may not be talkative but i love new friends, just make sure you're not on my dni
