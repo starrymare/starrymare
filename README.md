@@ -10,9 +10,13 @@
                  ﹑ . ︶  ➣ i am a NON SHARING selfshipper  so doubles DNI ₊ 005
 
 |      ╭【   ♡・MY DNI 】  ・・
+
 | if you aren't double , you should check this out !   ୧
+
 | ・┈ ✦ ﹕STRICTLY DNI : map supporters , p3dos , zooph1le , animal abusers or any other shi like this bro js go away
+
 | ・┈ ✦﹕ dni pls : any popular dw ship fans (like fruitcake) > i just don't want to interact with them .  ppl who think telling to kys is funny , haters of fandoms im in
+
 | ・┈ ✦﹕ PLEASE interact with me : ppl who wants to be my friend!! i may not be talkative but i love new friends, just make sure you're not on my dni
 ⠀ 　 　　　　 ⠀ <img width="843" height="139" alt="Без названия1506_20250821174648" src="https://github.com/user-attachments/assets/bbaf2037-4f4e-4107-b028-6d96d84d3023" />
 
