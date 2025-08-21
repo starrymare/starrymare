@@ -4,7 +4,7 @@
 
                  ﹑   hello ! my name's Mizuki or you can call me Yoyle!
                  ﹑   my pronouns are﹕she/her > any !  
-           　　 ⠀ ⠀ ⠀　　 ⠀ ⠀ ⠀      ────────୨ৎ────────⠀<img width="300" height="237" alt="lunwqj" src="https://github.com/user-attachments/assets/0809df31-1432-4b99-97e0-5a7396da3352" />
+           　　 ⠀ ⠀ ⠀　　 ⠀ ⠀ ⠀      ────────୨ৎ────────⠀
 
                  ﹑﹒₍₎﹕i'm cupioromantic & interbinary !  ‧₊˚  
 
@@ -17,7 +17,8 @@
 
 | ・┈ ✦ ﹕STRICTLY DNI : map supporters , p3dos , zooph1le , animal abusers or any other shi like this bro js go away
 
-| ・┈ ✦﹕ dni pls : any popular dw ship fans (like fruitcake) > i just don't want to interact with them .  ppl who think telling to kys is funny , haters of fandoms im in
+| ・┈ ✦﹕ dni pls : any popular dw ship fans (like fruitcake) > i just don't want to interact with them .  ppl who think telling to kys is funny , haters of fandoms im in   ⠀ ⠀ ⠀ ⠀ <img width="300" height="237" alt="lunwqj" src="https://github.com/user-attachments/assets/7d930815-9859-45dc-848b-8fd751476c28" />
+
 
 | ・┈ ✦﹕ PLEASE interact with me : ppl who wants to be my friend!! i may not be talkative but i love new friends, just make sure you're not on my dni
 ⠀ 　 　　　　 ⠀ <img width="843" height="139" alt="Без названия1506_20250821174648" src="https://github.com/user-attachments/assets/bbaf2037-4f4e-4107-b028-6d96d84d3023" />
