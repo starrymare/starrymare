@@ -1,5 +1,5 @@
 <p align="center">
-<img width="913" height="627" alt="Без названия1512_20250823131318" src="https://github.com/user-attachments/assets/1085c0c1-8c65-4197-9ad2-ff5cbdaccbe7" />
+<img width="513" height="352" alt="Без названия1513_20250823132438" src="https://github.com/user-attachments/assets/7ec3571c-55e1-4331-aaf4-4acd7d5596c2" />
 <p align="center">
 . ︶ Mizuki / Yoyle ! she/he
 <p align="center">
